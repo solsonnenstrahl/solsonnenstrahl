@@ -9,6 +9,6 @@ https://alistaniaheartzz.straw.page/
 
 ╭ ⸝⸝ BYF: I may make some weird jokes, in anycase, please let me know if you're uncomfortable!
 
-─ I do g0r3 in my roleplays, beware BEWARE![ミ](https://i.pinimg.com/1200x/08/fd/a4/08fda431b4d7a04d002bad7fa76e3d4f.jpg)
+─ I do g0r3 in my roleplays, beware BEWARE!ミ [ミ](https://i.pinimg.com/1200x/08/fd/a4/08fda431b4d7a04d002bad7fa76e3d4f.jpg)
 
 
